@@ -1,0 +1,1 @@
+anda tidak berhak bos
